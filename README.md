@@ -3,6 +3,6 @@ Pi normal and supercomputing-manifesting
 
 Happy pi day every 14th march.. Hope to go to a university or company with alum id for lecture and supercomputer calc ..
 
-Wonder what supercomputer fetch code is..and distribution of calc thats easy 100 successive terms to 100 computers?
+Wonder what supercomputer fetch code is..and distribution of calc thats easy 100 successive terms to 100 computers? DO we want parellel supercomputer or true liquid nitrogen high speed?
 
 https://www.instagram.com/p/DHKW5wGPDp-/?img_index=1
