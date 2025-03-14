@@ -1,6 +1,8 @@
 # Pi_n_SC
 Pi normal and supercomputing-manifesting
 
-Happy pi day every 14th march.. Hope to go to a university or company with alum id for lecture and supercomputer calc 
+Happy pi day every 14th march.. Hope to go to a university or company with alum id for lecture and supercomputer calc ..
+
+Wonder what supercomputer fetch code is..and distribution of calc thats easy 100 successive terms to 100 computers?
 
 https://www.instagram.com/p/DHKW5wGPDp-/?img_index=1
